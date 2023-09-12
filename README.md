@@ -10,13 +10,11 @@ Meu nome e anatielle
 
 aline.anatiele.ribeiro@escola.pr.gov.br
 
+@anatielle
 
 
 
-
-
-
-
+![]https://media.tenor.com/yDxgngEEeY0AAAAC/barbie-pink.gif
 
 
 
