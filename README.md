@@ -14,7 +14,6 @@ aline.anatiele.ribeiro@escola.pr.gov.br
 
 
 
-![]https://media.tenor.com/yDxgngEEeY0AAAAC/barbie-pink.gif
-
+![]https://media.tenor.com/VW4mxkYVimsAAAAM/avengers-end-game.gif
 
 
